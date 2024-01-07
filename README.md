@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mohamedseedahmed
+- 👋 Hi, I’m Mohamed Seedahmed
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning idk
 - 💞️ I’m looking to collaborate on nada
