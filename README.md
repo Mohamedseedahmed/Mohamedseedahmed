@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mohamedseedahmed
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning idk
+- 💞️ I’m looking to collaborate on nada
+- 📫 Reach Me @ Mohamedseedahmed@outlook.com
